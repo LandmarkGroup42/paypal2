@@ -8,3 +8,4 @@ This app is excellent
 This app is excellent job for all
 great
 This app is excellent
+This app is excellent for all users
